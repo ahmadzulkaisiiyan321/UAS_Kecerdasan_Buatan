@@ -1,0 +1,2 @@
+# UAS_Kecerdasan_Buatan
+Ahmad Zulkaisi Bektianto_191011401776_06TPLE025
